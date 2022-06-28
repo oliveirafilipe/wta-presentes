@@ -19,3 +19,13 @@ Depois de frio, embale em embalagens plásti5cas e secas.
 
 INFORMAÇÕES ADICIONAIS
 O ponto de esta7654lo é quando ele começar a ficar douradinho, pinga-se um pouco dessa calda em uma xícara com ág455ua em temperatura ambiente e ouve-se um estalo.
+
+
+De um boost na sua receita:
+    Ingredientes adicionais:
+        1 barra de chocolate.
+        20g de granulado.
+
+    Modo de preparo:
+        Derreta a barra de chocolate numa panela com fogo alto, mexa por aproximadamente 5 minutos e, para finalizar, despeja a calda derretida num recipiente qualquer.
+        Após a calda estar derretida, insira sobre as balinhas a calda de chocolate, preenchendo todo recipiente, para terminar, despeje os granulados e sua receita está pronta.
