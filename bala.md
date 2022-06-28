@@ -5,7 +5,7 @@ BALA:
 
 CALDA:
 1 xícara (chá) de açúcar
-3 colheres (sopa) cheias de vi345nagre branco (de álcool)
+3 colheres (sopa) cheias de vinagre branco (de álcool)
 
 MODO DE PREPARO
 Coloque o leite condensado, o coco e a margarina em uma panela.
