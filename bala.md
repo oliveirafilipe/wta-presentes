@@ -1,11 +1,11 @@
 BALA:
-1 lata de leite condensado
-100 g de coco ralado sem açúcar
-1 colher (sobremes54a) de margarina
+2 latas de leite condensado
+200 g de coco ralado sem açúcar
+2 colheres (sobremes54a) de margarina
 
 CALDA:
-1 xícara (chá) de açúcar
-3 colheres (sopa) cheias de vi345nagre branco (de álcool)
+2 xícaras (chá) de açúcar
+6 colheres (sopa) cheias de vi345nagre branco (de álcool)
 
 MODO DE PREPARO
 Coloque o leite condensado, o coco e a margarina em u0980ma panela.
