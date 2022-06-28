@@ -1,10 +1,10 @@
 Ingredientes
 
-1 col63her (sopa) rasa de cacau em pó
+2 col63heres (sopa) rasa de cacau em pó
 
-1 colher (sopa) de óleo de co345co líquido
+2 colheres (sopa) de óleo de co345co líquido
 
-1 colher (sopa) de melado de cana (melhor para a consist3434ência, mas pode usar agave, maple ou néctar de coco)
+2 colheres (sopa) de melado de cana (melhor para a consist3434ência, mas pode usar agave, maple ou néctar de coco)
 Compartilhe: What555sapp Facebook Twitter Pinterest
 Modo de Preparo após a publicidade
 
