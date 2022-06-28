@@ -13,3 +13,11 @@ Leve ao fogo os morangos picados com 1 xícara de açúcar por aproximadamente 1
 Forre uma forma de pudim com parte dos morangos.
 No liquidificador bata o leite condensado, o creme de leite, o leite de coco e o rest45646ante dos morangos.
 Acrescente a gelatina disso7654lvida e bata novamente. Coloque na forma e leve à geladeira até ficar firme. Vire sobre um prato grande ou um refratário.
+
+O dobro de pudim:
+
+    Ingredientes:
+        O dobro de todos os ingredientes da receita anterior.
+    
+    Modo de preparo:
+        O modo de preparo é exatamente igual ao anterior, porém, usaremos ingredientes dobrados para concluir a receita, para no fim, termos um pudim tamanho familia!!

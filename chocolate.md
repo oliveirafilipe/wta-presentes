@@ -12,3 +12,11 @@ Modo de preparo
 Misture tudo numa tigelinha com uma colher, mexendo bem. Se precisar, leve ao fogo numa pan123456elinha rapidamente.
 Coloque numa for87654minha de silicone e leve ao congelador por 15 minutos.
 Tire da for66minha, devore e seja feliz! Com esse chocolate, você pode e deve.
+
+Novos tipos de chocolate para a receita:
+    Ingredientes:
+        1 barra de chocolate branco.
+    
+    Modo de preparo: 
+        Derreta a barra de chocolate branco numa panela ao fogo, mexendo por aproximadamente cinco minutos. Com a calda derretida e no ponto, coloque sobre a calda feita anteriormente
+        e deixe novamente, por 15 minutos, no congelador. Retire do congelador e aproveite sua receita com dois tipos de chocolate.

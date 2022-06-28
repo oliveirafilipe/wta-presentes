@@ -25,5 +25,9 @@ Após os 10 minutos no freezer, mergul345435he os picolés no chocolate, de mane
 
 Em uma fo34535rma, com papel-manteiga, apoie os picolés com a calda e leve ao freezer até endurecer.
 
-INFORMAÇÕES ADICIONAIS
-Chocolate é o seu fr35345aco? Então dê uma olhada nessa receita de brownie sensacional!
+Extra, picolé de limão:
+    Ingredientes:
+        - 500ml de suco de limão.
+    
+    Modo de preparo:
+        Siga a receita do picolé normalmente, trocando apenas o chocolate por limão, para aproveitar um picolé com esse sabor maravilhoso.

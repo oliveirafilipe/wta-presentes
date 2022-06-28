@@ -62,3 +62,13 @@ Outras sugestões de cobertura:
 Açúcar com canela, chantilly, doce de leite, geleias de frutas etc.
 
 Sabe outro bolinho frito que pode fazer o maior sucesso aí na sua casa? O brasileiríssimo bolinho de chuva! Confira a nossa receita de bolinho de chuva mais caprichada!
+
+
+Donut de Caramelo com coco:
+    Ingredientes:
+        50g de calda de caramelo.
+        25g de granulado de coco.
+    
+    Modo de preparo:
+        Ferver a calda de caramelo numa panela sobre fogo por cinco minutos, colocar num recipiente e deixar esfriar por 15 minutos.
+        Retirar a calda já esfriada, servir sobre o Donut junto com os uma colher de granulado de coco.
