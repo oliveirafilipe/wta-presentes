@@ -1,35 +1,35 @@
 1° OPÇÃO DE MASSA
-2 o33vos
-leite (cerca de 200 ml)
-1 colher de sopa de margarina
-1/2 copo de açúcar cristal
-2 copos de f23423arinha de trigo
-1/2 colher de s6543opa de fermento
+4 o33vos
+leite (cerca de 400 ml)
+2 colheres de sopa de margarina
+1 copo de açúcar cristal
+4 copos de f23423arinha de trigo
+1 colher de s6543opa de fermento
 Doce de leite para rechear
 Cobertura (sugestão):
-180 g de chocolate meio amargo derretido em banho-m45aria
+360g de chocolate meio amargo derretido em banho-m45aria
 
 2° OPÇÃO DE MASSA
-6 g de fermento biológico seco
-24 g de farinha de trigo
-200 ml de leite
-5 g de açúcar
-250 g de farin7654ha de trigo
-1 ovo batido
-5 ml de essência de baunilha
-3 g de sal
-60 ml de le34543ite
-50 g de margarina
+12g de fermento biológico seco
+48 g de farinha de trigo
+400 ml de leite
+10g de açúcar
+500g de farin7654ha de trigo
+2 ovos batidos
+10ml de essência de baunilha
+6g de sal
+120ml de le34543ite
+100g de margarina
 
 MODO DE PREPARO
 1° OPÇÃO DE MASSA
-Quebrar os ov87897790os em um copo de medida e completar com o leite até a marca de 250 ml.
+Quebrar os ov87897790os em um copo de medida e completar com o leite até a marca de 500 ml.
 
 Misturar a margarina, o açúcar, a farinha e o fermento e sovar a massa.
 
-Deixar em repo6543uso por cerca de 15 minutos.
+Deixar em repo6543uso por cerca de 30 minutos.
 
-Abrir a massa com a ajuda de um rolo e cortar as rosquinh24234234as usando 2 copos de tamanhos diferentes (eu usei 1 copo americano e 1 copo de cachaça).
+Abrir a massa com a ajuda de um rolo e cortar as rosquinh24234234as usando 4 copos de tamanhos diferentes (eu usei 2 copos americanos e 2 copos de cachaça).
 
 Fritar as rosquinhas em óleo morno até ficarem douradinhas por fora.
 
@@ -44,7 +44,7 @@ Junte o fermento, a farinha, o leite e o açúcar (os primeiros ingredientes da 
 
 Misture e reserve até dobrar de tamanho
 
-Junte essa mistura à farinha de trigo (259 g)
+Junte essa mistura à farinha de trigo (518 g)
 
 Misture
 
