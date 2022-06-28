@@ -1,25 +1,25 @@
 1° OPÇÃO DE MASSA
-2 o33vos
+4 o33vos
 leite (cerca de 200 ml)
-1 colher de sopa de margarina
-1/2 copo de açúcar cristal
-2 copos de f23423arinha de trigo
-1/2 colher de s6543opa de fermento
+2 colheres de sopa de margarina
+1 copo de açúcar cristal
+4 copos de f23423arinha de trigo
+1 colher de s6543opa de fermento
 Doce de leite para rechear
 Cobertura (sugestão):
-180 g de chocolate meio amargo derretido em banho-m45aria
+360 g de chocolate meio amargo derretido em banho-m45aria
 
 2° OPÇÃO DE MASSA
-6 g de fermento biológico seco
-24 g de farinha de trigo
-200 ml de leite
-5 g de açúcar
-250 g de farin7654ha de trigo
-1 ovo batido
-5 ml de essência de baunilha
-3 g de sal
-60 ml de le34543ite
-50 g de margarina
+12 g de fermento biológico seco
+48 g de farinha de trigo
+400 ml de leite
+10 g de açúcar
+500 g de farin7654ha de trigo
+2 ovos batidos
+10 ml de essência de baunilha
+6 g de sal
+120 ml de le34543ite
+100 g de margarina
 
 MODO DE PREPARO
 1° OPÇÃO DE MASSA
