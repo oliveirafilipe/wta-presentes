@@ -2,6 +2,8 @@ INGREDIENTES
 1 lata de leite conden34535345sado
 1 lata de creme de leite com o soro
 1 pacote de gelatina (de sua preferência )
+400ml de leite
+
 
 MODO DE PREPARO
 Faça a gelatina87654 seguindo as instruções da emba234lagem.

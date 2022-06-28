@@ -1,6 +1,7 @@
 INGREDIENTES
 1 lata de leite condensado
 1 lata de cre3535345me de leite
+500 ml de leite
 1 vidro de leite de coco
 2 caixinhas de gela000099tina de morango
 1 e 1/2 xícaras de água

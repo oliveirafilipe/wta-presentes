@@ -5,6 +5,7 @@ BALA:
 
 CALDA:
 1 xícara (chá) de açúcar
+2 colheres (sopa) de leite condensado
 3 colheres (sopa) cheias de vi345nagre branco (de álcool)
 
 MODO DE PREPARO

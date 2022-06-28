@@ -1,5 +1,6 @@
 1° OPÇÃO DE MASSA
 2 o33vos
+2 colheres de leite condensado
 leite (cerca de 200 ml)
 1 colher de sopa de margarina
 1/2 copo de açúcar cristal

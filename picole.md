@@ -2,6 +2,7 @@ INGREDIENTES
 Picolé:
 2 caixas de creme de leite
 1 lata de leite cond098765ensado
+200 ml de leite
 3/4 de xícara de leite em pó
 Calda:
 500 g de chocolate

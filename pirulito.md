@@ -1,6 +1,7 @@
 INGREDIENTES
 200 g de chocolate branco
 200 g de chcola456546te ao leite
+200g de chocolate meio amargo
 confeitos a gosto
 100 g de chocolate branco
 
