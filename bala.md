@@ -1,7 +1,7 @@
 BALA:
 1 lata de leite condensado
 100 g de coco ralado sem açúcar
-1 colher (sobremes54a) de margarina
+1 colher (sobremesa) de margarina
 
 CALDA:
 1 xícara (chá) de açúcar
