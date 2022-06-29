@@ -21,3 +21,4 @@ Depois de frio, embale em embalagens plásticas e secas.
 
 INFORMAÇÕES ADICIONAIS
 O ponto de estalo é quando ele começar a ficar douradinho, pinga-se um pouco dessa calda em uma xícara com água em temperatura ambiente e ouve-se um estalo.
+

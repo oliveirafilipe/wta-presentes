@@ -11,4 +11,5 @@ Bata bem para misturar.
 Despeje em um recipiente com os morangos e coloque no freezer para endurecer.
 Eu coloco em uma forma de alumínio, pois congela mais rápido.
 Quando a massa do sorvete endurecer, coloque na vasilha da batedeira e bata até dobrar o volume (cerca de 10 minutos).
-Coloque em um pote para sorvete e volte ao freezer até endurecer.
+Coloque em um pote para sorvete e volte ao freezer até endurece.
+

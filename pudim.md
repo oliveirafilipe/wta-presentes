@@ -14,3 +14,4 @@ Leve ao fogo os morangos picados com 1 xícara de açúcar por aproximadamente 1
 Forre uma forma de pudim com parte dos morangos.
 No liquidificador bata o leite condensado, o creme de leite, o leite de coco, o coco ralado e o restante dos morangos.
 Acrescente a gelatina dissolvida e bata novamente. Coloque na forma e leve à geladeira até ficar firme. Vire sobre um prato grande ou um refratário.
+
