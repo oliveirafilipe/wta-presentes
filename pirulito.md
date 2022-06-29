@@ -3,6 +3,7 @@ INGREDIENTES
 200 g de chcolate ao leite
 confeitos a gosto
 100 g de chocolate branco
+Granulado sabor morango
 
 MODO DE PREPARO
 Derreta o chocolate branco e o ao leite.

@@ -4,6 +4,8 @@ Ingredientes
 
 1 colher (sopa) de óleo de coco líquido
 
+2 xícaras de leite
+
 1 colher (sopa) de melado de cana (melhor para a consistência, mas pode usar agave, maple ou néctar de coco)
 Compartilhe: Whatsapp Facebook Twitter Pinterest
 Modo de Preparo após a publicidade

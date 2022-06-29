@@ -4,7 +4,7 @@ Picolé:
 1 lata de leite condensado
 3/4 de xícara de leite em pó
 Calda:
-500 g de chocolate
+500 g de chocolate amargo
 
 MODO DE PREPARO
 Picolé:

@@ -9,6 +9,8 @@ Doce de leite para rechear
 Cobertura (sugestão):
 180 g de chocolate meio amargo derretido em banho-maria
 
+2 pacotes de amendoim
+
 2° OPÇÃO DE MASSA
 6 g de fermento biológico seco
 24 g de farinha de trigo
